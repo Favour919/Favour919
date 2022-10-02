@@ -1,9 +1,5 @@
+![ezgif com-gif-maker (1)](https://user-images.githubusercontent.com/67082766/193443490-8be76de7-b5f9-464e-8db5-88c51b8af7d8.gif)
 
-
-
-![ezgif com-gif-maker](https://user-images.githubusercontent.com/67082766/193443308-0a142c8c-38d1-4bc6-a60a-7ac53e33c3ea.gif)
-
-**Favour919/Favour919** is a ✨ _special_ ✨ repository 
 
 Here are some ideas to get you started:
 

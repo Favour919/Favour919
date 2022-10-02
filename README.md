@@ -1,6 +1,7 @@
 
 
-[ezgif com-gif-maker](https://user-images.githubusercontent.com/67082766/193443200-5081eede-330c-46fd-b531-7bf3d945fb01.gif)
+
+![ezgif com-gif-maker](https://user-images.githubusercontent.com/67082766/193443308-0a142c8c-38d1-4bc6-a60a-7ac53e33c3ea.gif)
 
 **Favour919/Favour919** is a ✨ _special_ ✨ repository 
 
